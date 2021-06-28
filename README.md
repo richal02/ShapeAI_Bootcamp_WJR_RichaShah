@@ -1,0 +1,1 @@
+# ShapeAI_Bootcamp_WJR_RichaShahl
